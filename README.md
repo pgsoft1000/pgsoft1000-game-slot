@@ -1,0 +1,1 @@
+# pgsoft1000-game-slot
